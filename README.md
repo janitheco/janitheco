@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @janitheco
 - 👀 I’m interested in science and blogging
-- 🌱 I’m currently learning many things
+- 🌱 I’m currently working in Aerospace 
 - 💞️ I’m looking to collaborate on anything
 - 📫 Reach me by https://janith.org
 
